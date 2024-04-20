@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @iamhae11
+- 👀 I’m interested in finish my school
+- 🌱 I’m currently learning about psychology, criminology and english teacher
+- 💞️ I’m looking to collaborate on things that add to my learning
+- ⚡ Fun fact: i'm from peru 
